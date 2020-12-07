@@ -1,1 +1,1 @@
-# KronoStudy2 aaaaaaaaaaaaaaaaa
+# KronoStudy2
